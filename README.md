@@ -1,2 +1,0 @@
-# COMP310P_GroupY
-
